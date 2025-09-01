@@ -1,0 +1,1 @@
+# adanimundra_resume_point
